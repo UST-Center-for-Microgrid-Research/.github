@@ -24,4 +24,4 @@ We are always looking for new collaborators and partners who share our vision an
 
 ## Request Data
 Use this form to request data from the Center for Microgrid Research.
-[Request for Data](https://forms.office.com/r/WSnzj0mwyb)
+[Request for Data](https://forms.office.com/r/9e1ZcZamB5)
